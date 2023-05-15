@@ -7,6 +7,6 @@ I hope you enjoyed this as much as I did.
 Thank you and have a nice day.  
 I mean that I really do.  
 
-Can I change it in the master branch too?  
+Hello I am typing THIS on master branch. I am your master.  
 
 
